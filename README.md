@@ -59,7 +59,8 @@ A service they may want to utilize is advertising more to the financial firm and
 
 
 
-Works Cited
+Works Cited:
+
 Addepar Company Profile: Funding & Investors. (n.d.). Retrieved September 11, 2020, from https://pitchbook.com/profiles/company/53736-85
 
 Wealth Management Platform. (n.d.). Retrieved September 11, 2020, from https://www.addepar.com/
